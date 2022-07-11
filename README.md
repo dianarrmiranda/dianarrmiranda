@@ -1,4 +1,4 @@
-## Diana Miranda
+## Diana Miranda - Informatics Engineering Student
 
 <div align="center">
   <a href="https://github.com/dianarrmiranda">
